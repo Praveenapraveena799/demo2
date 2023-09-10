@@ -1,2 +1,2 @@
 # demo2
-hi welocme delete optiondhf
+hi welocme delete option of gret hub
